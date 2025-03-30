@@ -1,4 +1,3 @@
-i don't have time to edit this at the moment so it's the stock things
 i don't code everyday , i don't submit everyday, but everytime i submit, there is an improvement of the projet i've submitted to.
 ## Hi there 👋
 
